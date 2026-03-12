@@ -5,7 +5,10 @@
 - Grandma: Ana "White Ferns Supporter" (Wellington)
 
 ## Family Traditions
-- Weekend BBQs watching the All Blacks and cricket matches
+- Weekend BBQs watching the All Blacks and UFC fights
+
+- Daughter: Sarah "UFC Fan" Williams (lives in Queenstown, Iraels Adesanya supporter)
+- Weekend BBQs watching the All Blacks and cricket matches and UFC fights
 
 ## Children after Grandparents
 - Son: Mike "Black Caps & Warriors Fan" Williams (lives in Christchurch)
